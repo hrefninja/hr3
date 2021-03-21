@@ -1,2 +1,3 @@
 # hr3
 nao me responsabilizo por nenhum ato...
+tools para hacking, DDOS, PHINISHING, INVASAO DE CAMERA, CONTROLE DO WIFI, SPAM SMS, BRUTE-FORCE 
